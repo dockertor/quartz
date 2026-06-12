@@ -15,7 +15,7 @@ tags: [source]
 Estoicismo. Sísifo. Etc.
 # Gurren Lagann: Uma Análise Filosófica
 
-Gurren Lagann é insanidade por excelência, mas não devemos descartar essa farsa com base em experiências superficiais. Se a vida nos ensina algo, é que nossos órgãos sensoriais são eficientes em coletar informações, mas requerem uma cognição filtrante para desenterrar os mistérios que jazem por baixo. Devemos, portanto, descascar o verniz de cores explosivas, personalidades extravagantes e transformações meca exorbitantes para apreender a mensagem subjacente que é tão evidente que pode muito bem ser Yoko Littner de pé completamente nua no seu quarto.
+Gurren Lagann é insanidade por excelência, mas não devemos descartar essa farsa com base em experiências superficiais. Se a vida nos ensina algo, é que nossos órgãos sensoriais são eficientes em coletar informações, mas requerem uma cognição filtrante para desenterrar os mistérios que jazem por baixo. Devemos, portanto, descascar o verniz de cores explosivas, personalidades extravagantes e transformações meca exorbitantes para apreender a mensagem subjacente que é tão evidente.
 
 "Mas Gurren Lagann é um meta-anime absurdo que é uma paródia do gênero mecha," você pode dizer. Talvez. Mas suponha que tomemos o objetivo de romper os céus como uma proposta séria. Poderíamos então afirmar que a retórica de Kamina é meta em si mesma, falando a uma geração de jovens apáticos que perderam seu propósito e gravitaram em direção ao niilismo em toda a sua repugnância?
 
